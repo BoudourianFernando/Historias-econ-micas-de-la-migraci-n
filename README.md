@@ -1,1 +1,2 @@
-# Historias-econ-micas-de-la-migraci-n
+# Historias-econ-micas-de-la-migración
+a migración entre México y EE. UU. transforma comunidades y economías. Las remesas, fundamentales para el desarrollo local, financian proyectos de vivienda, salud y educación en regiones mexicanas. Sin embargo, las políticas migratorias más estrictas en EE. UU. han generado desafíos para sectores clave como la agricultura y la construcción, afectando tanto la productividad como la estabilidad económica. Una cooperación binacional es crucial para enfrentar estos retos.
